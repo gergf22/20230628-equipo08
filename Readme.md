@@ -1,1 +1,1 @@
-Germán Fraire
+Germán Fraire - Lina Gómez 
